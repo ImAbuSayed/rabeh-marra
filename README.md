@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا ليالي الشوق ناديني
+> في عيونك أرى يقيني
+> قلبي يهواك داويني
+> نارك في دمي تحييني
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
